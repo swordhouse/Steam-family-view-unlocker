@@ -4,4 +4,4 @@ Hello my friends, this app unlock to steam family view. Run "steam_fam_view_crac
 Contact from discord : nesmurfukanka
 
 Dev : Talha
-Dev² : Haktan
+  Dev² : Haktan
